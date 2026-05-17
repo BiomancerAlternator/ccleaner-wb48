@@ -1,4 +1,4 @@
-# 
+# best CCleaner para PC scripts es el mejor CCleaner para PC scripts con búsqueda de archivos y bloqueo de archivos. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
